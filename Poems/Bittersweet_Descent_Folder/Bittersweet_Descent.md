@@ -1,8 +1,7 @@
 Bittersweet Descent
 
 You fell once again
-To an abyss of certainty
-with absurd swiftness
+To an abyss of certainty with absurd swiftness
 That can outrun fate.
 Doubtless, hopeful
 That you will land
